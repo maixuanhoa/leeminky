@@ -1,2 +1,3 @@
 # leeminky
-read book - develop - invesment
+read book - develop - invesmen
+Học tập chăm chỉ-chờ cơ hội đến 
